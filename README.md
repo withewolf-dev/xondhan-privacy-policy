@@ -1,1 +1,0 @@
-# xondhan-privacy-policy
